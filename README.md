@@ -6,7 +6,7 @@ I am a Business Administration Professional with a background in AI training, da
 
 🌱 Currently Learning: I’m diving into the world of programming, dedicating time each day to mastering logic and Python, one of the world's most versatile languages.
 
-📫 Reach Me: Connect on LinkedIn](https://linkedin.com/in/sara-carolina-tailor-acosta)
+📫 Reach Me: [Connect on LinkedIn](https://linkedin.com/in/sara-carolina-tailor-acosta)
 
 😄 Pronouns: She/Ella
 
